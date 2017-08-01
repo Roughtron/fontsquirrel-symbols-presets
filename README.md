@@ -1,1 +1,1 @@
-«»№%1234567890-+qwertyuiopasdfghjkl;'zxcvbnm,.?!()&$#@<>/\[]{}:;QWERTYUIOPLKJHGFDSAZXCVBNMйцукенгшщзхъфывапролджэёячсмитьбюЙЦУКЕНГШЩЗХЪФЫВАПРОЛДЖЭЁЯЧСМИТЬБЮ
+«»№%1234567890-+qwertyuiopasdfghjkl;'zxcvbnm,.?!()&$#@<>/\[]{}:;QWERTYUIOPLKJHGFDSAZXCVBNMйцукенгшщзхъфывапролджэёячсмитьбюЙЦУКЕНГШЩЗХЪФЫВАПРОЛДЖЭЁЯЧСМИТЬБЮ₽
